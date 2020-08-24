@@ -1,1 +1,1 @@
-Date - August 23, 2020
+Date - August 22, 2020
